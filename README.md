@@ -22,4 +22,4 @@
 
 立即访问本站，开启你的安心看片之旅，尽享高品质日本AV大作！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben00001 ）</span> 
